@@ -1,0 +1,1 @@
+# how-to-update-bushnell-golf-phantom-2-gps
